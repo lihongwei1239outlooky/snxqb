@@ -1,0 +1,2 @@
+# snxqb
+http://snxq.xyz
